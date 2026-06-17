@@ -267,7 +267,7 @@ BITS Pilani
 
 ## B.Tech – Computer Science & Engineering
 
-Calcutta Institute of Engineering and Management
+West Bengal University of Technology
 
 ---
 
