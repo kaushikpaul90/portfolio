@@ -267,6 +267,8 @@ BITS Pilani
 
 ## B.Tech – Computer Science & Engineering
 
+Calcutta Institute of Engineering and Management
+
 ---
 
 # Areas of Interest
